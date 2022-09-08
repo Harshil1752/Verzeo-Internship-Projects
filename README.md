@@ -1,1 +1,0 @@
-# Verzeo-Internship-Projects
